@@ -1,6 +1,6 @@
   <div align="center">
     
-  ![1](https://komarev.com/ghpvc/?username=Luviephaip&abbreviated=true&color=B5CC6A&style=plastic&label=ㅤ🍏ㅤ)
+  ![1](https://komarev.com/ghpvc/?username=Luviephaip&abbreviated&color=B5CC6A&style=plastic&label=ㅤ🍏ㅤ)
     
 ![](https://files.catbox.moe/mxpkh0.jpg)
 ![](https://files.catbox.moe/lu4gfz.jpg)
