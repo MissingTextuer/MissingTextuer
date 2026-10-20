@@ -2,8 +2,6 @@
     
   ![1](https://komarev.com/ghpvc/?username=Luviephaip&abbreviated&color=B5CC6A&style=plastic&label=ㅤ🍏ㅤ)
 
-$${\color{green}Welcome}$$
-
 ![](https://files.catbox.moe/mxpkh0.jpg)
 ![](https://files.catbox.moe/lu4gfz.jpg)
 ![](https://files.catbox.moe/j49a69.png)
