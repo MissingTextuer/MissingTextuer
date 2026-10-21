@@ -8,7 +8,7 @@ ${\color{#DEF05D}Th\color{#B8C64D}an\color{#A2C145}ks}$  [Ponytowns-rewards](htt
 
 ཐི ₍^.ˬˬ.^₎ ཋྀ
 
-![](https://files.catbox.moe/fzmidp.png)
+<img src="https://files.catbox.moe/8ppjbf.gif" width="200" height="200"/>
 
 ![](https://files.catbox.moe/mxpkh0.jpg)
 ![](https://files.catbox.moe/lu4gfz.jpg)
