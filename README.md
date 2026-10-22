@@ -1,6 +1,6 @@
   <div align="center">
 
-  ![](https://files.catbox.moe/us2eqr.png)
+  ![](https://files.catbox.moe/omggri.png)
   
   ![1](https://komarev.com/ghpvc/?username=Luviephaip&abbreviated&color=B5CC6A&style=plastic&label=ㅤ🍏ㅤ)
 
@@ -24,4 +24,4 @@ ${\color{#DEF05D}Th\color{#B8C64D}an\color{#A2C145}ks}$  [Ponytowns-rewards](htt
 
 ![](https://files.catbox.moe/kg11co.png)
 
-![](https://files.catbox.moe/viiltu.png)
+![](https://files.catbox.moe/7snbuc.png)
