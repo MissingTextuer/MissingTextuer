@@ -22,7 +22,9 @@ ${\color{#DEF05D}Th\color{#B8C64D}an\color{#A2C145}ks}$  [Ponytowns-rewards](htt
 ![](https://files.catbox.moe/bdxqs7.gif)
 ![](https://files.catbox.moe/m9c4ft.gif)
 ![](https://files.catbox.moe/9kc518.gif)
+![](https://files.catbox.moe/wjwvn9.gif)
 ![](https://files.catbox.moe/2obto9.gif)
+![](https://files.catbox.moe/8q2l10.gif)
 
 ![](https://files.catbox.moe/kg11co.png)
 
