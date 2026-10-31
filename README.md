@@ -13,7 +13,14 @@ $${\color{#A2C145}ˑ 𓈒 \color{#DEF05D}𐔌 🍀  \space \color{#DEF05D}Po\col
 <p align="center"><img width="400" src="https://files.catbox.moe/1geybe.png" alt="fang" align="right" width="200" /></p>
 
 </br>
-${\color{#DEF05D}Th\color{#B8C64D}an\color{#A2C145}ks}$  [Ponytowns-rewards](https://github.com/Ponytowns-rewards) [pt-everypony](https://github.com/pt-everypony) ${\color{#B8C64D}𖹭 \color{#A2C145}. \color{#DEF05D}ᐟ}$
+$${\color{#DEF05D}Th\color{#B8C64D}an\color{#A2C145}ks}$$
+<a
+href="https://github.com/Ponytowns-rewards">Ponytowns-rewards
+<a
+href="https://github.com/pt-everypony">pt-everypony
+/a>
+  
+$${\color{#B8C64D}𖹭 \color{#A2C145}. \color{#DEF05D}ᐟ}$$
 
 ཐི ₍^.ˬˬ.^₎ ཋྀ
 
