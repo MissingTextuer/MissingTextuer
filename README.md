@@ -8,7 +8,7 @@
 
 $${\color{#A2C145}ˑ 𓈒 \color{#DEF05D}𐔌 🍀  \space \color{#DEF05D}Po\color{#B8C64D}ny \space \color{#A2C145}To\color{#B8C64D}wn\color{#DEF05D}'s \space \color{#DEF05D}Fa\color{#B8C64D}ngs\color{#A2C145}wor\color{#B8C64D}th \space \color{#A2C145}  ˖ ݁\color{#DEF05D}ᧆ}$$ </br>
 
-$${\color{#A2C145}ꪆ⏝ \color{#DEF05D} ི  \color{#DEF05D}𝄞 \color{#DEF05D} ྀ  \color{#A2C145}⏝ৎ}$$ </br}
+$${\color{#A2C145}ꪆ⏝ \color{#DEF05D} ི  \color{#DEF05D}𝄞 \color{#DEF05D} ྀ  \color{#A2C145}⏝ৎ}$$ </br>
 
 ![](https://files.catbox.moe/kg11co.png)
 
