@@ -18,8 +18,7 @@ $${\color{#DEF05D}Th\color{#B8C64D}an\color{#A2C145}ks}$$
 href="https://github.com/Ponytowns-rewards">Ponytowns-rewards
 <a
 href="https://github.com/pt-everypony">pt-everypony
-/a>
-  
+</a>
 $${\color{#B8C64D}𖹭 \color{#A2C145}. \color{#DEF05D}ᐟ}$$
 
 ཐི ₍^.ˬˬ.^₎ ཋྀ
