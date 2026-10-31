@@ -4,17 +4,17 @@
   
   ![1](https://komarev.com/ghpvc/?username=Luviephaip&abbreviated&color=B5CC6A&style=plastic&label=ㅤ🍏ㅤ)
 
-<p align="center"><img width="300" src="https://files.catbox.moe/c1ylym.png" alt="fang" align="left" width="200" /></p>
+<p align="center"><img width="390" src="https://files.catbox.moe/c1ylym.png" alt="fang" align="left" width="200" /></p>
 
 $${\color{#A2C145}ˑ 𓈒 \color{#DEF05D}𐔌 🍀  \space \color{#DEF05D}Po\color{#B8C64D}ny \space \color{#A2C145}To\color{#B8C64D}wn\color{#DEF05D}'s \space \color{#DEF05D}Fa\color{#B8C64D}ngs\color{#A2C145}wor\color{#B8C64D}th \space \color{#A2C145}  ˖ ݁\color{#DEF05D}ᧆ}$$ </br>
 
 $${\color{#A2C145}ꪆ⏝ \color{#DEF05D} ི  \color{#DEF05D}𝄞 \color{#DEF05D} ྀ  \color{#A2C145}⏝ৎ}$$ </br>
 
-♡⏝　⸝⸝　　Apple ₒᵣ Fang　◞
+$${\color{#A2C145}♡⏝　⸝⸝\ \color{#DEF05D}Apple \color{#B8C64D}ₒᵣ\ \color{#A2C145}Fang　\color{#A2C145}◞}$$ $${\color{#DEF05D}He/\color{#DEF05D}They\color{#A2C145}/Xe　꒱}$$ </br>
 
 ![](https://files.catbox.moe/kg11co.png)
 
-<p align="center"><img width="300" src="https://files.catbox.moe/1geybe.png" alt="fang" align="right" width="200" /></p>
+<p align="center"><img width="390" src="https://files.catbox.moe/1geybe.png" alt="fang" align="right" width="200" /></p>
 
 $${\color{#DEF05D}Re \color{#B8C64D}w \color{#A2C145}ar \color{#B8C64D}d \color{#DEF05D}s.ᐟ}$$ </br>
 <a
