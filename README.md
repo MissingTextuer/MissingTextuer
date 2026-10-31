@@ -10,6 +10,8 @@ $${\color{#A2C145}ˑ 𓈒 \color{#DEF05D}𐔌 🍀  \space \color{#DEF05D}Po\col
 
 $${\color{#A2C145}ꪆ⏝ \color{#DEF05D} ི  \color{#DEF05D}𝄞 \color{#DEF05D} ྀ  \color{#A2C145}⏝ৎ}$$ </br>
 
+♡⏝　⸝⸝　　Apple ₒᵣ Fang　◞
+
 ![](https://files.catbox.moe/kg11co.png)
 
 <p align="center"><img width="300" src="https://files.catbox.moe/1geybe.png" alt="fang" align="right" width="200" /></p>
