@@ -1,6 +1,6 @@
   <div align="center">
 
-  ![](https://files.catbox.moe/omggri.png)
+  ![](https://files.catbox.moe/yshi3a.png)
   
   ![1](https://komarev.com/ghpvc/?username=Luviephaip&abbreviated&color=B5CC6A&style=plastic&label=ㅤ🍏ㅤ)
 
@@ -45,4 +45,4 @@ ${\color{#B8C64D}⸝}$
 ![](https://files.catbox.moe/2obto9.gif)
 ![](https://files.catbox.moe/8q2l10.gif)
 
-![](https://files.catbox.moe/7snbuc.png)
+![](https://files.catbox.moe/9n2nyo.png)
