@@ -35,6 +35,10 @@ ${\color{#B8C64D}⸝}$
   <a
     href="https://github.com/pt-fashion">pt-fashion
   </a>
+  ${\color{#B8C64D}⸝}$
+  <a
+    href="https://github.com/THE-TEMPIST">THE-TEMPIST
+  </a>
 </br>
 
 ཐི ₍^.ˬˬ.^₎ ཋྀ
