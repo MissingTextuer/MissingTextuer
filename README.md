@@ -31,6 +31,9 @@ ${\color{#B8C64D}⸝}$
   <a
     href="https://github.com/pt-everypony">pt-everypony
   </a>
+  <a
+    href="https://github.com/pt-fashion">pt-fashion
+  </a>
 </br>
 
 ཐི ₍^.ˬˬ.^₎ ཋྀ
