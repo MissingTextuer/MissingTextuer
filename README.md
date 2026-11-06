@@ -41,6 +41,10 @@ ${\color{#B8C64D}⸝}$
   <a
     href="https://github.com/THE-TEMPIST">THE-TEMPIST
   </a>
+    ${\color{#B8C64D}⸝}$
+  <a
+    href="https://github.com/pony-town-nominations">pony-town-nominations
+  </a>
 </br>
 
 ཐི ₍^.ˬˬ.^₎ ཋྀ
