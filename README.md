@@ -54,8 +54,15 @@ ${\color{#B8C64D}⸝}$
 
 ཐི ₍^.ˬˬ.^₎ ཋྀ
 
-details>
-<summary>  $${\color{#A2C145}B\color{#DEF05D}Y\color{#B8C64D}I}$$</summary>
+<details>
+<summary>  $${\color{#DEF05D}B\color{#B8C64D}Y\color{#A2C145}I}$$</summary>
+  $${\color{#A2C145}test}$$ 
+$${\color{#A2C145}test}$$
+  
+</details>
+
+<details>
+<summary>  $${\color{#DEF05D}D\color{#B8C64D}N\color{#A2C145}I}$$</summary>
   $${\color{#A2C145}test}$$ 
 $${\color{#A2C145}test}$$
   
