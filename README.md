@@ -19,8 +19,6 @@ $${\color{#A2C145}(˶˃\color{#DEF05D}ᆺ˂˶\color{#B8C64D})\ \color{#A2C145}C+
 $${\color{#A2C145}\ W2I　\color{#DEF05D}Offtabe\ \color{#B8C64D}a\ lot　 \color{#A2C145}Social\ \color{#DEF05D}Anxiety}$$
 $${\color{#A2C145}＆　Paranoia\ \color{#B8C64D}Final\ \color{#DEF05D}Boss}$$
 
-$${\color{#A2C145}readme\ still\ wip\ I'm\ lazy\ 0.o}$$
-
 ![](https://files.catbox.moe/ooc6yg.png)
 
 <p align="center"><img width="390" src="https://files.catbox.moe/iodn01.png" alt="fang" align="right" width="200" /></p>
