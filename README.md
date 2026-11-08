@@ -56,15 +56,28 @@ ${\color{#B8C64D}⸝}$
 
 <details>
 <summary>  $${\color{#DEF05D}B\color{#B8C64D}Y\color{#A2C145}I}$$</summary>
-  $${\color{#A2C145}test}$$ 
-$${\color{#A2C145}test}$$
+  $${\color{#A2C145}⋆\ Hello!\ I\ have\ hard\ times\ talking\ to\ people\ first\ but\ I'm}$$
+  $${\color{#A2C145}always\ open\ to\ making\ friends\ if\ you\ talked\ to\ me\ first\ I\ would\ like\ to\ know\ you\ more\ <3!}$$
+$${\color{#A2C145}⋆\ English\ is\ not\ my\ first\ language\ I\ don't\ type\ correct\ sentence\ cuz\ that's\ how\ I\ type.}$$
+    $${\color{#A2C145}⋆\ Use\ tone\ tags\ with\ me,\ I\ misunderstand\ stuff\ sometimes.}$$
+    $${\color{#A2C145}⋆\ I\ have\ bad\ paranoia\ and\ social\ anxiety,\ not\ that\ much\ mentality\ well}$$
+    $${\color{#A2C145}⋆\ c+h\ is\ always\ welcome!\ I'm\ mostly\ offtab\ so\ I'm\ not\ going\ to}$$
+    $${\color{#A2C145}say\ anything\ unless\ you\ do,\ please\ don't\ roleplay\ with\ me\ I\ hate\ it.}$$
+    $${\color{#A2C145}⋆\ Ask\ to\ add\ you\ on\ pt\ I\ have\ it\ turned\ off\ and\ I\ don't\ add\ people}$$
+    $${\color{#A2C145}I\ don't\ know\ or\ never\ talked\ to\ before\ or\ people\ who\ wants\ to\ be\ friends.}$$
   
 </details>
 
 <details>
 <summary>  $${\color{#DEF05D}D\color{#B8C64D}N\color{#A2C145}I}$$</summary>
-  $${\color{#A2C145}test}$$ 
-$${\color{#A2C145}test}$$
+  $${\color{#A2C145}Basic\ DNI\ criteria\ ⸝\ Bigots\ ⸝\ Radqueers\ ⸝\ Transid\ ⸝\ Pro/Darkshippers}$$ 
+$${\color{#A2C145}⸝\ Lookout3d\ ⸝\ SlipperyHC\ ⸝\ Twixxel\ and\ Idaios\ fans/supporters}$$
+  $${\color{#A2C145}⸝\ Anti-Neopronouns+Xenogender\ ⸝\ TTC\ ⸝\ under\ 14-}$$
+  $${\color{#A2C145}⸝\ Dandy's\ world\ (if\ your\ normal\ enough)}$$
+  $${\color{#A2C145}⸝\ The\ Freak\ Circus\ fans\ ⸝\ people\ who\ still\ play\ Forsaken\ and\ Pressure}$$
+  $${\color{#A2C145}and\ Grace\ (only\ okay\ if\ you\ still\ in\ the\ fandom)}$$
+    $${\color{#A2C145}⸝\ HH/HB\ (okay\ sometimes\ if\ I\ find\ you\ normal)\ ⸝\ You\ force\ religion}$$
+  $${\color{#A2C145}⸝\ Tr*mp/Chatgpt/AI/Israel\ Supporters.}$$
   
 </details>
 
