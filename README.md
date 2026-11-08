@@ -6,7 +6,7 @@
 
 <p align="center"><img width="390" src="https://files.catbox.moe/c1ylym.png" alt="fang" align="left" width="200" /></p>
 
-$${\large\color{#A2C145}ˑ 𓈒 \color{#DEF05D}𐔌 🍀  \space \color{#DEF05D}Po\color{#B8C64D}ny \space \color{#A2C145}To\color{#B8C64D}wn\color{#DEF05D}'s \space \color{#DEF05D}Fa\color{#B8C64D}ngs\color{#A2C145}wor\color{#B8C64D}th \space \color{#A2C145}  ˖ ݁\color{#DEF05D}ᧆ}$$ </br>
+$${\color{#A2C145}ˑ 𓈒 \color{#DEF05D}𐔌 🍀  \space \color{#DEF05D}Po\color{#B8C64D}ny \space \color{#A2C145}To\color{#B8C64D}wn\color{#DEF05D}'s \space \color{#DEF05D}Fa\color{#B8C64D}ngs\color{#A2C145}wor\color{#B8C64D}th \space \color{#A2C145}  ˖ ݁\color{#DEF05D}ᧆ}$$ </br>
 
 $${\color{#A2C145}ꪆ⏝ \color{#DEF05D} ི  \color{#DEF05D}𝄞 \color{#DEF05D} ྀ  \color{#A2C145}⏝ৎ}$$ </br>
 
@@ -25,7 +25,7 @@ $${\color{#A2C145}readme\ still\ wip\ I'm\ lazy\ 0.o}$$
 
 <p align="center"><img width="390" src="https://files.catbox.moe/iodn01.png" alt="fang" align="right" width="200" /></p>
 
-$${\color{#DEF05D}Re \color{#B8C64D}w \color{#A2C145}ar \color{#B8C64D}d \color{#DEF05D}s.ᐟ}$$ </br>
+$${\large\color{#DEF05D}Re \color{#B8C64D}w \color{#A2C145}ar \color{#B8C64D}d \color{#DEF05D}s.ᐟ}$$ </br>
 <a
   href="https://github.com/Ponytowns-rewards">Ponytowns-rewards
 </a>
